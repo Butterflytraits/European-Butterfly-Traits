@@ -1,1 +1,1 @@
-# Eurpean-Butterfly-Traits
+# European-Butterfly-Traits
